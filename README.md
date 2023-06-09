@@ -1,0 +1,11 @@
+# elleve-1
+10 TI 09PLUS1EIN
+hei
+PIPPI
+YES
+1
+ME
+THAT ONE
+NUDE
+ATM
+IDK
